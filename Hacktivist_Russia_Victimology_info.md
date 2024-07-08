@@ -5,8 +5,8 @@ Suggest to download the file:
 
 - CyberArmyofRussia_Reborn - (Народная CyberАрмия)
 	(https://t.me/CyberArmyofRussia_Reborn)
-- Soltnsepek (Солнцепек)✅
-	(https://t.me/solntsepekZ)
+- Soltnsepek (Солнцепек)
+	(https://t.me/solntsepekZ)✅
 - XakNet 
 	(https://t.me/xaknet_team)✅
 
